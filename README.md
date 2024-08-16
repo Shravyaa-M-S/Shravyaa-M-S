@@ -6,7 +6,7 @@
   
 - 💞️ I’m looking to collaborate on innovative projects in robotics, AI, ML, DL, and automation that drive positive change.
   
-- 📫 How to reach me : You can connect with me via [LinkedIn](www.linkedin.com/in/shravya-m-s-480a78267) or email me at [shravyamookamale@gmail.com].
+- 📫 How to reach me : You can connect with me via [LinkedIn] (www.linkedin.com/in/shravya-m-s-480a78267) or email me at [shravyamookamale@gmail.com].
   
 - 😄 Pronouns: She/Her
   
